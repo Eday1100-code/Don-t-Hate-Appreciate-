@@ -1,3 +1,2 @@
 # Don-t-Hate-Appreciate-
-Configuration To Narcissist 
-
+Configuration To Narcissist
